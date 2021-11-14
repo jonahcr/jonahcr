@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jonahcr
+- 👀 I’m interested in any type of web development
+- 🌱 I’m currently learning more about node
+- 💞️ I’m looking to collaborate on anything cool
+- 📫 How to reach me jonah@cyber-romance.com  
