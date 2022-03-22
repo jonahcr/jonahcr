@@ -5,4 +5,4 @@
 - 💞️ I’m looking to collaborate on anything cool
 - 📫 How to reach me jonah@cyber-romance.com  
 - 👨‍💻 My personal portfolio https://www.jonahlmadeya.com/
-- 🇫🇷 I also love 🧀 and 🍷  héhé
+- 🇫🇷 I also love 🧀 and 🍷 
